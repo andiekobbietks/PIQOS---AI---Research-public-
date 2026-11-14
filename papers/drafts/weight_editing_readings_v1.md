@@ -1,4 +1,4 @@
-# Weight-Editing Claims: Ten Readings of Posts, Papers, Reports and Releases for Whether the Evidence Supports the Edit Claimed
+# Weight-Editing Claims: Ten Readings of Posts, Papers, Reports and Releases for Whether the Evidence Supports the Edit Claimedd
 
 *AI-assisted. Living research: staged, not peer reviewed, may be revised or withdrawn.*
 
